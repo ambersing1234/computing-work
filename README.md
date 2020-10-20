@@ -15,6 +15,4 @@ I am Amber Sing, student from Dunman High School.
 * Food
 * Hwang Hyunjin :D
 
-* dancing around mushrooms :))
-
 
